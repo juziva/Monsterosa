@@ -1,1 +1,3 @@
 # Monsterosa
+
+Monstera pro všechny.
